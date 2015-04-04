@@ -1,409 +1,171 @@
-Suzie dragged herself to her feet slowly, wincing.
+# Chapter Three
 
-That… Had been bad.
+How dare they? Who would dare to break the sanctity of her home? Who would be fucking stupid enough to pick a  fight with her?
 
-She'd counted seven explosions.
+Do not take anyone's family. Take someone's family, and they will not stop until you are dead.
 
-Seven dead.
+Suzie stepped up behind the police car sitting outside her house, and her hands moved swiftly. The first man collapsed, falling forwards as his neck broke with a sickening snap.
 
-At least.
+As the other spun around her fist ripped his throat out with a bloody spatter.
 
-Pain ripped through her heart, and she swallowed back the bile.
+She stepped passed them and into her house.
 
-Death… How the hell was she ever supposed to get used to that idea?
+No one touches her family.
 
-Josiah really screwed her over!
+Who would be stupid enough to?
 
-She blinked away tears and swallowed, looking around the remains of the office. Jedidiah was safe, collapsed behind the desk… But the inner wall was completely gone. The lobby was covered in scorch marks and… Other stuff.
+Hadn't she given enough? Didn't she suffer enough?
 
-She winced and limped out towards one of the mostly intact…
+Every night was terror, the nightmares waiting for her to close her eyes. She had given everything! And in return… They tried to take it all again.
 
-Damn.
+She had nearly died a hundred times. Her luck and intellect had barely kept her alive, whilst all around her other people paid the price. How many had to die? How many people had to suffer so that some asshole could get her attention?
 
-Suzie knelt beside the ruins of a human, and glanced over it. The torso was mostly intact, apart from the surface flesh, but there was something burned into its remains. Something that it had likely been carrying, made of metal.
+She was done with it!
 
-It was distorted and melted now, but some fractal-based mathematics formed a rough shape in her mind. It was a seal, likely designed to be used as a threat, because it belonged to the smart tank.
+She hated herself far more than she could ever admit, but the rage and darkness that had built within her soul was nothing… Not compared to the rage she found waiting in her heart, this utter blackness that cried out for vengeance. She would strike whoever attempted to leverage her family against her into the grave.
 
-The kind of weapon that fanatics like these would adore.
+But first, she would make them suffer.
 
-She winced, feeling pain in her torso and glanced down, blinking as she saw the tiny hole in her gut, not so much bleeding as pouring a small rivulet of blood down her.
+Suzie's eyes widened as she finished the search of the house… Neither Ted nor Arlia were here.
 
-Suzie stood up, swallowed, and then jammed her fingers into the cut, her eyes rolling in the pain, but she felt the purchase of the tiny object and ripped it out.
+And Ted's packing had been interrupted.
 
-The young agent swallowed back the bile, and dropped the bloody tooth to the ground. She swallowed and ejected a bullet from her gun, using her robotic arm to split the bullet apart, letting the gunpowder fall onto the wound, then she fired off an empty shot with her gun, letting the hammer ignite the powder.
+He thought she hadn't noticed… But damn… Her paranoia could have saved him.
 
-Bloody hell!
+Tears welled in her eyes and she pushed her fists to her temples, she wouldn't pay attention to this.
 
-She un-gritted her teeth and breathed out heavily, the cauterised wound stinging like no tomorrow.
+She would get him back.
 
-Suzie frowned and looked back at the melted seal.
+And Arlia.
 
-Melted.
+She would save her daughter.
 
-A flash-explosion had managed to melt something made of a very serious metal. That was pretty extreme.
-
-She grinned, that was hubris.
-
-The suicide bombers had used a compound that used incredible heat for no reason. It wasn't destructive. It was simply… Showing off.
-
-Suzie frowned, not a lot of chemical components could be used to generate such a weapon… And fewer still could be easily obtained.
-
-She dug her phone out of her pocket, and then thought better of it and dropped the shattered object to the ground. It's particular resistance to explosions hadn't exactly proved strong.
-
-Suzie rubbed her face and flipped open a panel on her arm, and hit the touchscreen a few times, and then sighed heavily, "No WiFi. Should have seen that coming."
-
-How did people find things before the internet?
-
-She sighed and ran down the stairs, she had to get to somewhere with an internet connection. Had to stop whoever this was, from striking again.
-
-No one rushed to stop her, she saw more death and destruction on her way out than she had seen in her entire lifetime. How could someone willingly do this to another person?
-
-How could someone ever wish death on someone else?
-
-She sprinted down the road, passed bewildered and shellshocked onlookers, and skidded into a shopping centre. She flicked the panel on her arm open again and smiled as it connected. She quickly logged in to her remote access at ASIO, and fired up a search.
-
-Compounds…
-
-Canada…
-
-Explosives…
-
-Ah.
-
-Purchasers…
-
-Backtracing…
-
-Back orders.
-
-Shell companies…
-
-Isn't anyone ever creative anymore? At least make the name a joke, if you aren't going to make it hard to see through!
+Even if it meant that a hundred daughters didn't have their fathers come home.
 
 ---
 
-Jedidiah groaned loudly, wincing as he felt a hand touch his arm, "Sir, stay calm."
+Ted swallowed as masked men began setting up video cameras, one pointed at him, the other at a small steel table.
 
-He winced and went to sit up, instantly getting pushed down. "No sir, lie down."
+The man holding his daughter sighed heavily, "I really must apologise, but things have been... Progressing."
 
-He swallowed nervously, "That… What the hell happened?"
+Ted swallowed nervously, "What exactly are you going to do?"
 
-"Let's work on getting you healthy first."
+The man adjusted his grip on the baby girl, "I am going to place Arlia on that table, and hold her in place with magnetic clamps. I am then going to record both my actions and your reactions."
 
-Jedidiah winced, and tapped his ear, "Wake up, COMMi."
+A red light flicked on near the front of the camera and the masked man made a sound of satisfaction.
 
-His ear vibrated, generating a voice only he could hear, "Yes, Jedd?"
+Ted felt fear pumping through him, "What are you going to do to my daughter?"
 
-He sighed heavily, "Determine cause of action, last hour."
+The man sighed, "I apologise. Your wife has made things complicated."
 
-"Canadian Security Intelligence Services were struck by a series of explosions forty six minutes ago. Cause is not yet publicly determined. Street cameras, though data is corrupted via explosions, suggest suicide bombers."
+"What are you going to do!?" Ted screamed, horror rising in his gut, twisting tighter.
 
-Jedidiah's entire body tensed, and he swallowed nervously, the paramedic grabbed his wrist, "Sir?"
+The man placed Arlia on the table gently, and she immediately started crying from the cold. He placed half rings around her wrist, using an electromagnet to lock them in place.
 
-He waved it off, "Just talking with my security system. Verify my identity, and you can drop it."
+"Fucking tell me, you bastard!"
 
-"I already have, sir."
+Arlia looked up in confusion, her crying suddenly vanishing as the man pulled her limbs taut on the table.
 
-Jedidiah grinned, and then spoke quietly, "COMMi… Give me a target."
+Ted felt tears well in his eyes as he saw a knife appear. "Don't... Please... She's just a baby..."
 
-"One target seems to have survived unscathed and exited the building before subsequent explosions. Scanning for facial matches."
-
-He tapped his fingers rhythmically, impatient for the answer, and then his program finally responded, "Verified. Susan Drakes, operative of ASIO, currently on loan to CSIS."
-
-Jedidiah winced and sat up, ignoring the paramedics protests, "COMMi, issue a Code 127 to all Five Eyes organisations. Authorise on my behalf."
-
-He stood slowly, ignoring the agony, and turned to the paramedic, "This is a national emergency. No one is to leave this plaza. Call it, right now."
-
-The man turned to talk to others, but Jedidiah was busy, his eyes scanning the wreckage of the building he was in front of. This much damage… It was insane.
-
-It didn't make sense.
-
-"COMMi, exactly how many explosions can you detect?"
-
-"Seven. Three followed by a six minute gap, followed by four. Beyond the larger gap, there were no more than sixty seconds between each explosion."
-
-Jedidiah tensed, "Impossible."
-
-That much destruction… From that few explosions… They had to have been super-heated.
-
-A screech of tires distracted him, and he looked over at the white jeep, the letters 'CSIS' plastered on the side, as it disgorged its contents.
-
-Two agents, one male and built like a linebacker, the other female and seemingly over-muscled.
-
-The female spotted him and made a beeline for Jedidiah, whereas the male seemed to survey the crowd as he moved, searching for something.
-
-"Sir, Agent Calson." She said as she neared, "What can you tell me about the attack?"
-
-"Not a lot." Jedidiah frowned, "Authorisation Code?"
-
-She smiled softly, "Sorry, sir." She patted her pockets and pulled a book out, "17637B?"
-
-Jedidiah rolled his eyes, "Close enough. It’s the one under that today."
-
-She blushed, "Sorry sir."
-
-He scratched his head, "As far as I can tell, there were seven explosions, but after three our expert fled the scene. Possibly to isolate and eliminate the greater threat."
-
-The male spoke softly as he arrived, "I doubt it… There was no possible way that she passed her psych evaluation."
-
-Jedidiah smiled, "So you're a profiler, then? Agent…?"
-
-"Manfred."
-
-Jedidiah sighed and rubbed his face, "Look, we have practically no information. We just had one of our sites attacked and destroyed. An expert we called in, predicting a situation, is no longer in contact with us. She may have taken some bait and been eliminated. It's what I would try and do. What we know for certain is someone attacked CSIS. They suicide bombed us. Not exactly a defining trait. We need to track whatever made the explosion, or make an assumption whoever took the tank did this. If so, track the tank."
-
-Agent Calson ran a hand through her short blond hair, "Dangerous to make an assumption, right now."
-
-"Taskforce." Manfred said and smiled, "Send the CSIS in full-tilt. Three directions."
-
-Jedidiah nodded, "I've already issued the order. You should receive a SMS shortly detailing who to report to, in this case, me. We will track the explosion, let others step up security and track the tank."
-
-He smiled, "Calson, get hold of a lab, preferably with a spectrometer. Manfred and I will examine the scene."
+The man spoke as softly and calmly as always, "I am aware. As I have said... I am sorry for this. But Susan Drakes has made this... Essential."
 
 ---
 
-Suzie sat crouched on a rafter, controlling her breathing, watching in the dark warehouse.
+Andrew looked up through the glass as a dozen men burst into his office and began sealing every scrap of paper in sight into a plastic bag. He ground his teeth together angrily and shoved open his office door, "What the hell is this?"
 
-She'd managed to track the chemicals back to a shipping point, but no further, yet.
+A man standing by himself spun around, "Ah. You would be… Who exactly?"
 
-It was unlikely anyone intelligent would return to pick up the remaining chemicals… But small mistakes often took down large organisations.
+He glared, "Andrew McKenzie. And this is the Australian Signals Directorate, I think you might be lost."
 
-Also, someone smart would have booby-trapped the remaining chemicals, and that would lead her towards whoever did it.
+The man grinned broadly, "Afraid not. My boss's boss just opened an investigation into the ASD. We are here to ensure that all data is controlled, and protected. We may conduct the investigation, but we don't know for sure yet. We're just here to set up for it. You are to terminate all investigations and on-going procedures, and then hand over everything to us."
 
-So, she sat crouched in place, waiting and watching. Analysing.
+He glared, feeling his full height, "Warrant."
 
----
+The man rolled his eyes and produced it, handing it over with a shrug, "I'm sorry man, but these are the kicks."
 
-Calson looked at the odd, and slightly mysterious CEO of McIntyre Industries as he stared at a readout, "I didn't think CEOs studied science."
+Andrew scanned the document, noticing the authentic numbers and passphrases, but more he noticed the seal of approval. The issuing agency.
 
-"I was an engineer." He replied distractedly, "Never a brilliant person like Josiah or Suzie… But good enough to read a spectrometer."
+"ASIO is shutting us down?"
 
-He shifted to a computer and tapped away on the keys, and then smiled softly, "Great."
+The man smiled softly, "Its nothing personal."
 
-He turned around, "Whoever made the explosives used some pretty nasty stuff. Palladium amongst other stuff. Which means we can track them."
+"It's about Susan fucking Drakes!" Andrew roared, his whole office turning to stare at their quiet-spoken boss, as he glared down at the ASIO agent, "We had her in our custody, and you are trying to cover up or paint her as a target. Hard to tell, at the moment. She did her job, why can't people just back off?"
 
-Calson smiled and nodded, "Location?"
-
-"Give me a damn minute." He said glaring, "I only just analysed how to make the bomb!"
+The man sighed heavily, "I am Agent Macedon, and this conversation is over. Do as I have said, and then sit down and shut up. We'll talk to you when it suits."
 
 ---
 
-Suzie blinked, yawning as the saw a group of men moving towards the container, and she grinned, swinging down on her arm till she hang in the air effortlessly, glaring at them as they approached the container.
+Anna paused as the man sat down in front of her.
 
-One of the tapped a clipboard against the container, "This one. Shouldn't exist. Manifest says it was lost at sea."
+The man did, his accompanying female officer, did not.
 
-One of the others shrugged, "Do we really want to know what is inside a McIntyre container without calling them first? Those guys are crazy."
+The two police officers wore grim expressions, and the female spoke quietly, just within Anna's peripheral vision, "We are afraid we must ask a favour. Not a nice one."
 
-Suzie's face fell and she dropped to the ground, "Don't open it!"
+Anna frowned, "How can I help you, officers? What can the Joint Terrorism Analysis unit do for London's finest?"
 
-The guards glanced over at her, and the third laughed, "What do you know? Bait actually does work."
+The male shook his head, "Not the JTA. You, Anna."
 
-She swore and dove to the side as three guns appeared and fired in her direction, and she felt the too-familiar scorch of bullets nicking her. Why couldn't she move faster?
+She swallowed nervously, sitting back into her chair, "How can I help?"
 
-Being only human sucks sometimes. Why couldn't I be a werewolf or something strong like that?
+The man produced a yellow piece of paper, "We have been investigating certain claims. Those claims have lead us to enough evidence that this warrant was signed. However, we would much prefer…"
 
-Suzie sighed and drew her sidearm, swallowing nervously.
+The female spoke again, barely in sight, "That you let us in the door, yourself."
 
-I can't kill. I can't kill. I can't kill.
+Anna blinked, "What? You want to search my flat? What on earth for?"
 
-She winced, shaking her head.
+"There have been complaints made from ranking members of government." The man said and shrugged, "At this stage its unsubstantiated conjecture. We are simply following a lead."
 
-Then Suzie flipped, using her ankle, looking at the world upside down, and fired thrice. She landed on her wrist, using it to push herself onto her feet as the guard each hit the ground in pain.
+Anna ground her teeth together, "Explain. Stop side-stepping."
 
-Suzie reloaded the clip quickly and glared, "Who exactly do you work for?"
+The female sighed, "Cash for influence."
 
-One of them, holding his bleeding ankle, glared up at her, "Who the hell do you think you are?"
+Anna glared over at her, "You think I'm corrupt? That someone is paying me to influence policy their way? I do my goddamn job! This is bollocks!"
 
-"Suzie Drakes, ASIO."
+The man smiled tightly, "And we will find that when we go to your house, if that is the case. We are simply trying to find the facts. We don't need your permission."
 
-The man burst out laughing, "Fly to the trap. Holy crap, he was right. You came."
+Anna sighed heavily, "This is trite. You may as well arrest me now, you are going to one day anyway, on this charge or another."
 
-Then she swore as he crushed something in his hand, and the container vanished.
-
----
-
-"Got a ping." Calson spoke quickly, and Jedidiah turned, "Then get to it."
-
-She nodded, "Explosion in the warehouse district. Agents are enroute."
-
-Jedidiah nodded, "COMMi, what happened out there?"
-
-The CEO nodded slowly, and looked at her seriously, "Arrange for a prison cell. Suzie Drakes was seen entering the area."
+"Thankyou for your understanding, ma'am." The man said and stood, "Cuff her."
 
 ---
 
-Head hurts!
+Captain J smiled brightly and stepped off the plane, picking up a nearby unloaded case and sprung it open, picking up his machinegun and assembling it with procedural instinct.
 
-Good god! My head hurts!
+A woman punched his shoulder lightly and shrugged on a leather frame filled with knife sheaths. She began inspecting and tucking away each blade, and he smiled softly, "What are you thinking, Sam?"
 
-Suzie blinked furiously, the light making the pounding inside her skull seem pleasant at best.
+She laughed, "Retrieving Drakes? This is a dream come true. Time to pit myself against someone who should be able to think faster than I can move."
 
-"Susan!" A voice yelled, and she grabbed her ears, "Holy crap!"
+He turned and inspected his team, each loading, checking and holstering weapons. His eye strayed, as usual, to Huntington, his explosives expert. The man was unwrapping a small metal sphere with extreme caution, and beginning to pull it apart.
 
-Then she stared up at an angry face, and swallowed weakly, "Sheesh… Jedidiah… What the hell?"
+"What's in it, Huntington?" He growled and the man flinched, "Don't surprise me, Captain. This is highly unstable."
 
-He glared at her, "You are implicated in the suicide bombing against the CSIS. You are on probation. Charges are pending. Please tell me that I'm wrong."
+J tensed his jaw, muscles rippling along it, "Then you shouldn't have brought it."
 
-Suzie swallowed again, "I have been bombed… Twice. McIntyre owned the container. But it was probably fraudulently used."
+"It's a seeker. It can track robotics and target it. Blow up when it gets too close. I'm just setting it up for Drakes and her arm. Didn't get a chance before we left." Huntington spoke slowly, concentrating as leveraged a spinning dial with a knife.
 
-"I hope this is simply stupidity." He growled angrily, "You leave, more suicide bombers strike. You are found with the evidence in your hands. You have the expertise and resources to build the bombs. You have motive. And by all accounts, you are psychologically unstable."
+Dunstan laughed in the background, "You have some bonkers ideas sometimes, Hunt."
 
-Suzie winced, "Oh. This really doesn't look great for me, does it?"
+The captain glanced over at his small arms expert, and as expected, he was holstering his fourth pair of pistols to his person, and a lone ninth gun was holstered to the right leg. "Is this a war zone, Dunst?"
 
-Jedidiah sat down, "No. So, what do you have to say?"
+The man shrugged, "Nikolai seems to think so, and he seems a good judge of character, most of the time."
 
-"Someone's taunting you." She frowned, "I left after spotting a seal from the smart tank melted into… Into… Into one of the bodies." Suzie winced, trying to focus, trying not to see the faces, "I figured the chemicals were high grade, and used my ASIO access to track shipments until I found one likely, and traced it. Met three guys, thought they were about to open the container, and innocent. I interrupted and they detonated it. Trap."
+He couldn't argue with that, the man had become the head of MI5 based on skill, not blind luck.
 
-Jedidiah sighed, "Really. Is that why you were alone, looking like you had tried to destroy the evidence?"
+Captain J smiled, "We head out in ten, make sure you're ready."
 
-She winced, "Oh crap."
+He approached his technical expert, Kaley, as she sat by herself, typing quickly on a small, rugged-looking tablet computer. "So, what do you think?"
 
-He stood up, and went to walk away, "Yeah."
+"This sucks ass." Kaley muttered, glaring at the screen, "I can't get past the security. It's locked up tighter than anything I've ever seen."
 
-The door swung closed heavily, and Suzie snapped into action. This would only work one way. She had to get free, track down the asshole and bring them down.
+J's face went white, "You can't get us out of this airport?"
 
-Suzie turned and fired up her prosthetics to full strength and punched through the wall, wincing at the tremors it sent through her body. She stepped through the hole and ducked as a fist tried to take out her head, she caught the arm and twisted it, sending them flying.
+She glanced up, "Oh, what? No. That's taken care of. Before we landed. No… Its Drake's home security system. I've never seen an encryption system like this. The encryption procedure is changing every time I take a crack at it."
 
----
+J winced, "Aw crap. How tight did she lock up her house?"
 
-Jedidiah winced and swallowed, "How the hell did she get out?"
+"Tight. I know its connected to a GPS system of some sort, though. So if I can get in, we can probably find Drakes herself."
 
-"Mr. Abraham, she's a turncoat." Manfred said with a sigh and shrugged, "The question is, how exactly should she be eliminated?"
+He smiled, "You ready to get us out of here, though?"
 
-Jedidiah sighed heavily, "I guess the best option would be a certain satellite. I'll get my people on it."
-
----
-
-Suzie clenched her fists, "Get out of my way."
-
-The blond facing her simply laughed and drew two pistols, "Unlikely. Stand down, Agent Drakes."
-
-"No." Suzie said, her hands flexing, "I will take you out if I need to. Someone nasty is still out there."
-
-The blond shrugged and fired quickly, causing Suzie to flinch as she fell backwards, searing pain in both her shoulders, "Holy crap! Is that how you talk to people?"
-
-Suzie flexed, "Back off. You are vexing me, and I am not exactly in a good mood."
-
-"I am Agent Calson of the CSIS. I request you stand down, or I will be forced to take you in by force."
-
-Suzie laughed, "Girl… You know who I am. You really, really should not be messing with me."
-
-Calson raised her guns again, "Need another taste?"
-
-Suzie sneered angrily and flexed her arm, and something shifted inside of it, "Please, don't make me do this. I've seen… Enough."
-
-Calson rolled her eyes, and Suzie struck. It was a simple enough manoeuvre, one she'd developed whilst recovering from… Josiah… The palm of her hand held a frequency generator, and she fired it.
-
-The copper inside Calson's weapons shook violently, heating, and the bullets inside the guns fired, including those in the clip, punching through Calson's hands.
-
-The woman screamed, dropping the weapons, and Suzie flinched as the two that had been in the chamber shot passed her.
-
-"I… Tried to warn you."
-
-Calson glared, "You can't win, traitor!"
-
-"I'm not the traitor you dumb bimbo!" Drakes yelled angrily and shook her head, walking towards the entrance, "I'm bloody hunting them."
-
----
-
-Back to the warehouse.
-
-It was a no-brainer, really.
-
-Suzie cringed as she saw the destruction left behind by the explosion, wincing at the thought of yet more people being hurt by her.
-
-Why did violence follow her around?
-
-How many people had died because of her?
-
-She shook her head, trying to avoid nightmares waking up inside her. She didn't need that right now.
-
-Didn't need any of this damn mess.
-
-But it was hers.
-
-Suzie crouched, picking up a handful of the ash, rubbing it in her hands. There had to be something, somewhere in all of this. Some evidence of whoever had stolen the smart tank, attacked the CSIS.
-
-"Hey, Suzie."
-
-Chills ran down her spine, and she swallowed, memories cascading over her.
-
-"No way." She turned around slowly, staring at him, "No… No… No way are you in this."
-
-He glared, "I'm kind of disappointed. This is something you should have seen coming. Where is your head at, girl? You and I… We went through so much together. I thought you'd recognise the signature. Who else would be crazy enough to pull this stunt?"
-
-Suzie glared at him, anger overwhelming her, "How could you do this? All… This? Aren't people important?"
-
-"Of course they are!" He laughed, "Exactly why I did this. Took out the tank. Took out the people who could develop it.  No one deserves this kind of control over the battlefield. No one should do… Any of this."
-
-The fear shooting through her belonged. Suzie knew this man, knew his mind. She couldn't deny his involvement… But she really wished she could. This was worse than Josiah. Worse than… Anything.
-
-How could he do this to her?
-
-John O'Connor.
-
-Her original supervisor, who retired after the incident with Josiah.
-
-Oh crap. Crapitty-crap-crap-crap!
-
-"What… What the hell is this?"
-
-O'Connor grinned and shrugged, "I though you of all people could work that one out."
-
-She stood there, frozen in place, her heart beating a million miles an hour, and her head stuck in a continuous loop. She couldn't think anything else.
-
-Crap. How? Why? God… Crap, crap, crap!
-
-O'Connor shook his head sadly and raised the pistol in his hand, and she finally reacted. Her mind switched over into combat mode, and she sprinted forward, her arm shattering the hand that held the gun that might end her life, as his fist struck her chest, breaking bone.
-
-She stumbled backwards, sending the mental command to strengthen her prosthetics, raising her arm barely enough in time to block the knife that appeared in her ex-handler's hand, but not enough to block the left-handed swing that clobbered her in the face.
-
-She went reeling, crashing to the ground, and O'Connor stood over her, wincing, "Where's your mind at, Suzie?"
-
-Suzie spat onto the ground, wincing at the blood in it, calculating the number of fractures in her jaw, and glared up at him, "It's hard to figure the mind of the mad. The reasoning they employ is creative, and unduly complicated. This allows them to react in strange and usually unpredictable ways."
-
-She stood slowly as O'Connor smiled at her with humour, "Come now, is that all you can see?"
-
-"I see fear. I see the anger to extinguish that fear being employed through fear-generating devices." Suzie sneered angrily, "You're nothing but a terrorist, O'Connor."
-
-He sighed heavily, "I have become what I have, because I must. People like you, people like Josiah, you don't fit the mould of the world. You change it. Burn it. Merely by expressing your thoughts you break the very world you are trying to live inside. The world is not ready for people like you."
-
-Suzie shrugged, "So I scare the crap out of you. Surprise, surprise. I know you." The young girl clenched her fists, "And if you try and kick me now, like you are thinking of, I will rip the leg from your body. There is no reason in this. No intelligence behind the man that left the agency. You aren't saving this world from any sort of tyranny, you are creating it. Maybe the world isn't ready for people like me… But it can figure that out on its own."
-
-She clenched her fists, glaring at him, "I'm not getting out of your way."
-
-"Fine." O'Connor shrugged, and he drew from his left hip, firing quickly, only to find his fingers crushed from a kick, then a fist struck his chest, stumbling him backwards, he barely blocked the knee with his own and then metal fingers were around his throat.
-
----
-
-Jeddidiah held up a hand as Manfred went to charge in, the man glaring at the girl on her knees, "No… Something's different."
-
-He swallowed nervously, scanning the scene in front of him, "She's killed someone… I… I think I know who that is."
-
-"Of course it's him!" Suzie yelled, spinning around to glare at him, "I thought someone like you could have worked that out by now!"
-
-She stood up, storming towards him, tears pouring down her face. Suzie tossed a screen to his feet, "There's where to find your bloody tank."
-
-Jeddidiah didn't stop her as she walked passed him, rage and grief held within that moment. He could see the man lying dead there, the man he knew could have orchestrated this moment.
-
-A man who should have never done this.
-
-How could he have framed his own pupil?
-
-Jeddidiah winced, he knew the answer, of course.
-
-That simply made it worse.
-
-"Let her go. She's done nothing wrong."
-
----
-
-No formal charges were made against John O'Connor.
-
-However, his grave was never made public.
-
-Susan Ashley Drakes was presented with the Canadian Victoria Cross by the Governor General of Canada. She subsequently retired from service to the Australian Security and Intelligence Organisation, and became engaged to Ted Jameson.
-
-Jeddidiah Abraham publicly retired as the CEO of McIntyre Industries, and seemingly vanished from the public eye.
-
-Twenty six agents were killed by the suicide bombings on the CSIS.
+"It's done. All the staff have been alerted a group of ASIO agents hunting a terrorist are coming through, armed to the hilt. Our photos attached. Once we're out, a worm will eat all the data. It's clean, Captain."
