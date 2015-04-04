@@ -2,7 +2,7 @@
 
 ## Read Online
 
-Read at [shaknaisrael.com](https://shakna-israel.github.io/drakes-heroes-and-villains.
+Read at [shaknaisrael.com](https://shakna-israel.github.io/drakes-heroes-and-villains).
 
 Read on [Kobo](https://store.kobobooks.com/en-US/ebook/drakes-heroes-and-villains).
 
@@ -37,7 +37,7 @@ The licensor cannot revoke these freedoms as long as you follow the license term
 ## Contribute
 ---- 
 
-You can find the latest version of this book, over on [Github](https://github.com/shakna-israel/drakes). 
+You can find the latest version of this book, over on [Github](https://github.com/shakna-israel/drakes-heroes-and-villains). 
 
 From there, you can help make changes, grab your own copy, and make and publish your own version of the book, if you want. 
 
