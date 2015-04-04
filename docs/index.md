@@ -1,15 +1,21 @@
-![Drakes](https://cdn.rawgit.com/shakna-israel/drakes-the-five-eyes/master/docs/img/frontCover.jpg)
+![Drakes](https://cdn.rawgit.com/shakna-israel/drakes-heroes-and-villains/master/docs/img/frontCover.jpg)
 
 ## Read Online
 
-Read at [shaknaisrael.com](https://shakna-israel.github.io/drakes-the-five-eyes).
+Read at [shaknaisrael.com](https://shakna-israel.github.io/drakes-heroes-and-villains.
 
-Read on [Kobo](https://store.kobobooks.com/en-US/ebook/drakes-the-five-eyes).
+Read on [Kobo](https://store.kobobooks.com/en-US/ebook/drakes-heroes-and-villains).
 
 ## Blurb
 ----
 
-Suzie Drakes is fighting to recover, following her last assignment, but the world waits for no one, and she is flung into the breach as her involvement with the Five Eyes deepens.
+Three years after [Drakes: The Five Eyes](https://shakna-israel.github.io/drakes-the-five-eyes), a global investigation into the events is underway, and all eyes are on Suzie Drakes.
+
+Some want to see her as the scapegoat, others the victim.
+
+She just wants to be left alone.
+
+But the world isn't that nice.
 
 ## Copyleft
 ----

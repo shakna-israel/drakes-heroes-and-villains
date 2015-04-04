@@ -1,7 +1,7 @@
-site_name: Drakes - The Five Eyes
+site_name: Drakes - Heroes and Villains
 theme: readthedocs 
-repo_url: https://github.com/shakna-israel/drakes-the-five-eyes
-site_description: Suzie fights to recover as her involvement with the Five Eyes deepens
+repo_url: https://github.com/shakna-israel/drakes-heroes-and-villains
+site_description: The stakes are raised when everyone comes gunning for Suzie, and her daughter.
 site_author: shakna-israel 
 use_directory_urls: true 
 pages:
@@ -12,3 +12,11 @@ pages:
  - [ChapterOne.md, Chapter One]
  - [ChapterTwo.md, Chapter Two]
  - [ChapterThree.md, Chapter Three]
+ - [ChapterFour.md, Chapter Four]
+ - [ChapterFive.md, Chapter Five]
+ - [ChapterSix.md, Chapter Six]
+ - [ChapterSeven.md, Chapter Seven]
+ - [ChapterEight.md, Chapter Eight]
+ - [ChapterNine.md, Chapter Nine]
+ - [ChapterTen.md, Chapter Ten]
+ - [Epilogue.md, Epilogue]
