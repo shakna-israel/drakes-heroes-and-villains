@@ -1,113 +1,87 @@
-Suzie's heart was going through the roof.
+# Chapter One
 
-This was insane.
+Drakes looked at the man putting her cuffs on with contempt, "You know these can't hold me, right?"
 
-What the hell was she doing?
+The agent winced, "They have a device inside that shocks the hell out of you if you break them."
 
-… This was about the dumbest thing she had ever done.
+Drakes grinned, "I know that. That's kinda why they won't work."
 
-She was sitting quietly at a table, in an uncomfortable black dress…
+The agent ignored the gleam in her eyes and stood back, "Look, you aren't in a position to be a bitch. CSIS just publicly blamed you for what went wrong in Canada, and they want us to hand you over to them. The Signals guys just want some help, so help 'em out. You have no friends here anymore, girl."
 
- A dress!
+Drakes rolled her eyes and opened her palm, displaying the keys to the cuffs, "Fine. Take them back. Just because you are being nice, and I don't want you to get fired."
 
-… Whilst looking across the table at a kid who looked too big for his suit, wearing an incredibly sheepish expression.
+The agent shook his head as he took them, "Why did someone like you quit, anyway?"
 
-Of course, he wasn't just a kid. His name was Ted, and he was kinda smart for someone her age, which wasn't something Suzie could usually say.
+Her face went dark, "How many friends have you had to kill, in your job?"
 
-She'd flirted with Ted before Josiah had… Had… She winced.
+He winced, "Yeah, I guess."
 
-Ted went into panic mode, "Is everything okay? Is it the restaurant? Don't you like seafood?"
-
-Suzie shook her head, "Forget it. Just memories."
-
-Crapsicles… Is this how crazy romance is? Is everything always this… Awkward?
-
-She smiled sweetly, "Its perfect."
-
-Heat flushed into his cheeks and he shifted uncomfortably in his seat, "That's good."
-
-Suzie sighed heavily and looked around the restaurant, "Exactly how can a high school student afford this?"
-
-Ted smiled sheepishly, "I play a little bit of music now and then. You know, busking."
-
-She glanced back at him, "Not just good at math? Music too?"
-
-He shrugged, "Not that great. I can't write it. Just… Play."
-
-Loosen up already!
-
-Suzie smiled softly, "Still like to hear it sometime… What do you play?"
-
-"A bit of… Uke, guitar… Piano… Sometimes I can be bothered to try violin, but usually that just ends with bloody fingers." Ted spoke shyly, and Suzie blinked, "What kind of music?"
-
-He smiled softly, "Sort of… Jazz stuff."
-
-Suzie grinned, thinking it through, "Experimental… Wait… You like discord don't you?"
-
-He finally smiled openly, "Yeah. Drifting out to other places and so on… Its music without end… But I don't generally perform that kind of stuff… People find it weird."
-
-She shook her head, "Not me. Its… Freedom."
-
-The waiter arrived carrying their plates and lowered it slowly, "Madame, sir."
+She shrugged as he loaded her into the van, "I was happier out there. In here... I'm just the girl who murdered the guy who trained her. Like you said, I've got no friends here."
 
 ---
 
-Suzie smiled from her doorstep at the nervous Ted, and kissed his cheek gently, giving him palpitations. "It was a good night. See you later?"
+Ted rocked the cradle gently with a foot as he leaned over the bed, quickly tossing clothes into a bag, packing it tightly. He should have had it packed, and if she was here, Susan would have berated the hell out of him. But she wasn't, and it was the reason he was packing.
 
-Ted swallowed, "Yeah, sure."
+After she'd left, Susan had prepared escape plans and contingency plans. She'd made him memorize all of them. With ASIO as a disgruntled employer, anything could happen.
 
-She grinned, "Buck up kid, you have my number, and I have yours."
+And now... She wasn't coming home.
 
-Ted blinked, "Since when do you have my number?"
+It was time to disappear, at least for a short while.
 
-Suzie rolled her eyes, "I work for ASIO. I kinda like you. Put it together."
+He zipped the bag shut and turned around to pick up his daughter, but the world swam sideways and he felt the floor rise up and hit him in the face.
 
-"That's illegal." He glared and then smiled, "And kinda sweet."
-
-Suzie smiled and opened the door, "Sleep tight, Ted."
-
-"You too," he said and turned and walked over to his bike.
-
-She pushed open the door and walked in slowly, breathing in heavily.
-
-"I hope it was a good night."
-
-Pistol appeared in her hand, and Suzie glared at the man standing in her kitchen, "Do you have a death wish, Alistair?"
-
-Her supervisor sighed heavily, "Authentication Code 9-Alpha-Seti."
-
-Suzie sighed and holstered the weapon under her dress, "What the hell do you want?"
-
-Alistair smiled softly, "We have a situation. You are being activated."
-
-She rubbed her face, "Seriously? Right when a guy I actually like isn't a total asshole?"
-
-Her supervisor didn't smile, "Relationships are unwise for someone in your position, Susan."
-
-"My name is Suzie!" She exploded angrily, her fists tightening, and she seethed, "And I am about sick of you. I am sixteen, and you are more than a bit rude."
-
-"I'm not your friend." Alistair growled, "I'm your handler. Get used to being handled."
-
-She ground her teeth together, "Then what am I being handled towards?"
-
-"Transfer. Canada. Authorisation Code 7169B83C." Alistair growled and Suzie breathed out in exasperation.
-
-Transfer to Canadian Security Intelligence Service, explanation once on the soil in Ottawa.
-
-In-bloody-convenient!
+His last thought before shadow took him was, "I should have kept the bag packed."
 
 ---
 
-Suzie: [Sorry Ted! Work is evil. I have to go off the radar for a bit. I swear the date was good, and we'll have another once I'm back in the open.]
+She yawned as her cuffs were connected to a steel bench, and a man sat down opposite her. "Miss Drakes, how was your trip?"
 
-Ted: [Oh hell. I hope you stay safe out there.]
+She laughed, "People are pissed off with me. What do you think?"
 
-Suzie: [You know me.]
+The man, an unusually tall figure, smiled softly, nervousness surrounding his whole figure, "Sorry about that. We'll try and keep this short, and maybe it will help you out. We're just trying to figure a protocol for if what happened in Canada, happened here."
 
-Ted: [Yeah. That's why I'm asking you to stay safe. Not do something stupid.]
+She paused, looking him over carefully, "I'm about sick of dealing with everyone. I left because I couldn't handle it anymore. I'm a broken agent, nothing I give you will be of any use."
 
-Suzie: [Lol. Nice. I'll try.]
+He shrugged, "I doubt that. You might be done with the field, but operating on creating protocols? Its hypothetical and distant. That's all we want."
 
-Ted: [Take care.]
+She sighed and ripped her mechanical arm free of the table, rubbing her forehead with it, "I don't know if it can be prevented, to be honest. There is a hell of a lot of intelligence behind the attacks I prevented. First major attack I stopped... The guy was theoretically smart. He understood the way the environment worked, and so he could create crazy powerful weapons. He also had charisma going for him. The second attack... It was someone who had years of field experience. He personally trained me, and so could predict me. He knew my weaknesses and strengths. He knew just about anyone he could send against us. How do you defend against your own boss?"
 
-Suzie: [I'll have another kiss for you when I get back.]
+The man smiled softly, "It can be done, but it is difficult... But lets forget a preventative protocol. Lets say your boss turned against us, and you called it in. How would you want us to handle it?"
+
+She blinked and frowned, drumming her free hand on the table, "I think... I think time would be most important. People like that can do an enormous amount of damage in a really short space of time."
+
+The man nodded, "So... What would we do?"
+
+Drakes shrugged, "Retask satellites, contact agents in the field and set up a live conference. Get everyone in the field coordinated against the individual. Then bring the stations up to speed and get a manhunt out. Only once that is done, try and contact the individual and see if they had any reason for their insane actions. If there's some sort of blame game, shut down both sides and send someone new after the time critical target. It's the only safe way."
+
+The man frowned, watching her carefully, "And if that means an attack is successful?"
+
+She just laughed, "So what? It gives the politicians spin. Let them spin that we need more power or something like that. In the field, that doesn't matter. It doesn't save lives. It might cost them if you don't prepare for a rogue agent. If you take out a good agent thinking they turned, then you lose the ability to effectively command the remaining agents."
+
+The man grinned, "You thought about every possibility, didn't you?"
+
+Drake glared, "No. No I didn't."
+
+He rolled his eyes, "Because no one can think of every situation. I know your intellect, Miss Drakes."
+
+Her teeth ground, "Would everyone stop calling me that? I got married. Least you could do is acknowledge it."
+
+The man paused, "Oh. Sorry, that wasn't in the limited information passed on to me."
+
+She frowned, "Mrs. Jameson. Okay?"
+
+He nodded, "Right then." Then three files appeared on the table, "I'd like you to talk through how you would handle these... Both in field, and as someone back here."
+
+---
+
+Samuel chortled at her, "What? You want her as some sort of heroine? An idol?"
+
+Anna glared at the man who was, for all intents and purposes, her boss. "What about that do you think is funny? We have a foreign agent, a woman, who saved hundreds, even thousands of lives. Publicly denounced by the people she saved."
+
+The director of MI5 nodded emphatically, "Absolutely. So let's find a fault. Make everyone hate her. We can use that to our advantage."
+
+Anna rolled her eyes, "I think having Drakes in our custody would be far better. Imagine it - one of the smartest women in the world, by our side. She built an exoskeleton warrior suit when she was first kidnapped. She could empower our army, and make our agents faster and stronger."
+
+Samuel scratched his head, "I don't think you get this at all. We don't want anyone associating us with that woman! I don't care how smart she is, she and her former boss, a father figure if he isn't more, caused a god damn international incident."
+
+Anna glared at him, "She could turn JTA into a force as powerful as the Mossad. I want her."
