@@ -1,143 +1,133 @@
-She stood calmly, confidently, hands clenched. Her mechanical hand twitched, uncertain what to do with the myriad of nerve impulses going through it.
+# Prologue
 
-Suzie Drakes glared at the laughing man sitting in front of her, the kid who had managed to steal her heart.
+The room is cold and empty.
 
-Josiah McIntyre grinned, "What's the matter, Susan?"
+That isn't to say that there were not things in the room, it was more a comment on the culture of the room itself.
 
-She ground her teeth, "Suzie."
+It wasn't a room designed to intimidate, or even to produce the melancholy she felt as she was bathed in its presence. This room was simply clinical, a reflection of its master.
 
-The young genius shrugged and stood up, "So what? Why you mad at me?"
+The auditor took the glasses from his nose and rubbed them gently with a folded cloth that appeared from a pocket, before being refolded and placed away as efficiently as they had come.
 
-"You know why!" She screamed angrily, "You are an asshole with a capital 'a'!"
+"I shall ask you again, Miss Drakes. In the time that you spent with John O'Connor, would you have ever expected him to act the way he did in Canada?"
 
-Josiah shrugged, "I tried to fix everything."
+She glared at the man, feeling her patience reach cracking point, "It's been three damn years. Three years since I saved what could be saved, and returned home. Three years since I had my last interview. I am not part of this organisation, and I have nothing to do with it anymore. I am not an agent, and I do not care about politics."
 
-"You tried to rule it all." She glared, "I stopped you."
+The man frowned, "That was not what I asked."
 
-"And others died." Josiah smiled his boyish smile at her, "How many died to help you out? When you stuck around willingly?"
+She laughed, and glared at him, "I don't give a shit what you think. In no way do I care. I've paid the price for my loyalty."
 
-Suzie screamed, sweat pouring off her as she sat up violently, gasping for breath.
+He grimaced and adjusted his glasses, "Miss Drakes, I must ask you to cooperate. We are just trying to ascertain the facts. Investigations are being run, around the world, to prevent this from ever happening again."
 
-Get a grip, girl.
+She glared at him, "Let it. I do not care. I was a teenager when ASIO employed me. I'd fixed my arm with an exoskeleton, something quicker and smarter than anyone else had made. So you employed me. Made me a bodyguard for a senator, right on the eve of a dozen assassination attempts. I was kidnapped by Josiah McIntyre, arguably the only man who could ever match my intellect. Then I was deployed to Canada, and attacked by my trainer and mentor, and damn nearly killed. I was forced to kill. So... You know what, I think I've done enough."
 
-She rubbed her face tiredly and collapsed backwards onto the bed, breathing out a tired sigh.
+The man sighed, "I am simply asking questions."
 
-"Susan?" Came a timid voice, and she winced, "What mum?"
+Her blue eyes blazed with anger as she leaned forward in the seat, her mechanical arm hissing from inside, "I am simply refusing to answer."
 
-Her mother looked down at her from the doorway, cautiously, "You were yelling again."
+The man stood slowly, "Answering the questions would be easier."
 
-She shrugged and rolled over, facing away, "It doesn't matter."
+She glared, "Easier than what?"
 
----
+"I would be forced to arrest you, and continue this pleasant conversation as an interrogation. One that will not end til we have the answers we seek."
 
-Suzie walked stiffly, crutches under her arms as she moved through the lobby of the building slowly. She smiled weakly as she passed the receptionist, who pressed a button to open the elevator doors.
-
-She leaned back against the railing in the small box, fighting her heart.
-
-She could barely remember being able to sit in such a tight space, ever.
-
-But there was something of a hard edge to her now, and she fell into it. Welcomed the darkness inside her, so she could feel nothing. Be free.
-
-The doors slid open with a 'ping' and she stumbled out and into the hallway, following familiar pathways down into a room.
-
-She smiled warmly as she entered, collapsing onto a nearby seat. The room was covered in random cables and computer chips, a technological haven, a place where she could thrive in peace. 
-
-She'd lost her arm as a child, and then built herself a replacement. It was the main computer chip inside that arm that had nearly allowed Josiah McIntyre to destroy everything in the world. As it was, a four-minute power outage had covered most of Europe, and the entirety of the United States.
-
-She wondered where exactly ASIO was holding him, or if they had decided he was too much risk and eliminated him.
-
-She also found herself wondering why it mattered so much.
-
-He'd kidnapped her, stole her heart, betrayed her trust and nearly forced her to kill him.
-
-She smiled weakly and looked down at her ankle, at the mess of bandages.
-
-Suzie yawned and flicked a wrist, "Hey, dimwit, I'm home!"
-
-There was a jerk from under a table and a small machine rolled into view, an arm attached to a pair of caterpillar wheels, "Hello, Suzie. How may I assist you?"
-
-She frowned, "Well, dimwit, I think the nerve damage in my ankle has taken as much a toll as I'm willing to let it."
-
-"I do not understand, Suzie." The mechanical voice intoned and she smiled, "Just the way I like it, dimwit."
-
-"I do not understand, Suzie."
-
-She smiled, she'd intentional kept it stupid. The Quantum Neuron Network she'd invented could have caused the world to end. Not exactly a pleasant thought for someone who was only sixteen years old.
-
-"Bring me the components I was working on yesterday, dimwit." She said happily, and the machine trundled off, returning with a small prosthesis.
-
-It was similar to her arm, looking almost entirely like a piece of human anatomy, but more like an ankle. It was designed to wrap around her ankle, cancel out the nerve damage, relieving her pain, and taking over their function, allowing her to walk normally.
-
-That being said… It didn't work at all.
-
-Her last prosthesis, her arm, was powered by a Quantum Neuron Network, allowing it to predict what movement she would do next, giving her flawless control.
-
-She couldn't risk that again, and she intended to downgrade her arm… But she hadn't solved the riddle of how to give herself that control.
-
-Walking with the ankle exoskeleton right now… Was more painful than the nerve damage. It always lagged behind her, causing her to scream when her foot dragged instead of walked.
-
-"Dimwit, how does the brain and a limb communicate effectively?" Suzie muttered, and the machine responded predictably, "Accessing search engine. Please wait. Data found… Many modern prosthetics work by reading the impulses generated by peripheral nerves."
-
-Suzie sighed and blew her hair, "Mine are fried. Great."
-
-"Do you wish me to order fried chicken or fish?" Dimwit responded and she glared, "I didn't command you, dimwit. Ignore comments without "dimwit" in the sentence, remember, dimwit?"
-
-The machine acknowledged her and she shook her head, was her programming getting worse?
-
-She frowned, "I need to develop neural interfacing… With data corruption crap to interpret the broken signals in my head…" She bit her lip, thinking, and then smiled, and snapped open a panel on the ankle prosthetic, viewing a small computer screen.
-
-She tapped it twice, and the touchscreen became active, and her fingers flew across the touch-keyboard.
+She laughed at him.
 
 ---
 
-A man she didn't recognise walked in the door, and she frowned, "Really?"
+Ted rubbed his brown mess of hair, sitting up with a groan. What woke him?
 
-The man grinned, straightening his tie, "I am Andrew Alistair. I've been designated as your supervisor. Now, as I understand it, you are having trouble recovering from a major incident, correct?"
+He blinked, trying to think, when he heard a dull, nearby rumble. He fumbled around and picked up the phone, "Yes?"
 
-Suzie rolled her eyes and tapped her ankle, at the apparent bulge in her skin and stood up slowly, "Not anymore."
+The person on the other side appeared surprised that they had woken him, "Sir, I'm afraid I need your full attention."
 
-He blinked, "Fantastic. What exactly have you done?"
+Ted winced, "Crap. What's happened?
 
-"Exoskeleton device." She smiled softly, "And no more QNNs. They're all gone."
+"I am calling from Sydney, sir. Your wife came here for a meeting?"
 
-Alistair nodded, "Excellent. I had worried. Not exactly a technology we should encourage."
+He groaned, "ASIO, yeah. What did Susan do?"
 
-Suzie shrugged and smiled softly, "No. So… What's up, now?"
+"I'm afraid I can't say, sir. Do not expect her to return within at least the next forty eight hours."
 
-He smiled softly, "Usually, you would be assigned to a senator as a bodyguard, however… You aren't being approved for a short while. Combat, mental, strategy testing. All that stuff."
+He woke up.
 
-Suzie rubbed her face, and paused.
+"What the hell do you mean by that? She would never agree to do another fucking mission!"
 
-She'd seen something reflected in dimwit's silver arm.
+"Sir, remain calm."
 
-She leapt forward, flattening Alistair to the floor, spinning with one leg extended, hoping that her centre of gravity would hold her still.
+Ted felt his teeth grind, "Remain calm? You're telling me you arrested my wife! She's a fucking patriot! Do you even understand how she has saved your life? What she gave up for you and every other ungrateful asshole in this country?"
 
-A bullet grazed the ground in front of her, flattening against the ground, and then she sprinted forward, and flung herself through the glass, breaking it with her robotic arm and flinging herself towards the only window that a shot at that angle could have come from.
+"Sir, I am simply passing on a message."
 
-Then wincing as her mental calculations told her that there was no way in hell she could jump that gap across the road.
+Ted hung up in frustration, and his face went white as another sound accompanied the clang of the phone.
 
-That was a bloody mistake.
+He sprinted upstairs towards his newborn daughter as she cried.
 
-She whipped the gun from her side, the gun she had to go through hell to be allowed to carry, and she fired three shots at the window in quick succession, and then she hit the road, rolling.
+---
 
-She flipped onto her back and grabbed the axle of the truck that should have hit her, pulling herself off the ground as it skidded to a stop.
+The man didn't seem comfortable in the suit. He almost seemed too big for it. It was a side affect on perception caused by his enormous stature. He would usually capitilise on it to increase the speed of work down in his branch of ASIO, but today was not that day.
 
-She flipped out onto the road and looked across to the window, and smiled weakly as she saw a man half-hanging out of the window.
+Rather, he was faced with the task, the incredibly arduous task, of encouragement.
 
-He wasn't dead, not yet.
+Something he wasn't much good at, because he would accidentally scare people, even with a reassuring hand.
 
-She flexed her ankle, feeling it strengthening and then she used it to jump, flying up to the edge of the window sill, and yanked herself in, kicking the man onto his back.
+The Head of the Australian Signals Directorate smiled a broad tooth smile, trying to be encouraging, but probably imitating a shark instead. "We have a heck of a task ahead of us today... You see, today, we'll be trying to begin our review of the CSIS crisis, and how we could set up protocols in our own nation to prevent them from occurring again."
 
-"Who the hell are you? And why did you aim at me?"
+The room fell deathly silent, and he wasn't sure if it was his smile, the way he phrased it, or the task in and of itself.
 
-The man gasped, staring at her, "You… You aren't… Allowed a gun…"
+A rogue ASIO agent had executed a series of terrorist strikes against Canada, including wiping out a quarter of their intelligence agency, because he no longer believed in freedom. The man had had enough, and so he attempted to destroy relations between the two countries, and truth be told - it was working.
 
-"Sorry. Got a license to carry, now." Suzie said harshly, "Now… Who are you?"
+At length he sighed and opened the folder in front of him, "Right. Moving on, the first issue is access. We still are not sure how John O'Connor managed to gain access to Canada. It was not on a civilian passport. Being the former head of Operations, he may have utilised flaws in our system, or had old unused passports from previous operations."
 
-The man passed out.
+One of the men at the table winced, "There's still too much conjecture about how this was done. I don't think we can make an accurate, or even umbrella, protocol to deal with this with our current information. There has to be something more."
 
-She sighed heavily and dug through his pockets, finding a wallet. "Huh. Fired McIntyre employee."
+Another member, thumbing though the brief smiled, "The agent involved would be a Susan Drakes, yes?"
 
-She shrugged and glanced over to the ASIO building, at Alistair who was standing at the window, watching her.
+The Head smiled and nodded warmly, "Yes."
 
-Someone actually tried to kill me, not someone I'm protecting. That's new.
+The man shrugged, "Then let's interview her. She was just brought in for questioning. It was in this mornings packet."
+
+Andrew frowned, "And we'd just be able to get another branch to hand her over?"
+
+The man shrugged, "For a few hours? It's worth a shot."
+
+---
+
+Anna Doherty was the head of the Joint Terrorism Taskforce, a group within MI5 dedicated to eliminating and preparing for terrorist threats.
+
+The Canadian Security Intelligence Service and the utter crap that had been caused by an ex-ASIO agent had finally made it to the top of her in pile.
+
+She looked the document over, ignoring the fact that three words in five were redacted, and paused as she reached the end.
+
+She had been attempting to ignore use of conjecture, and any other ballsy move that might have her leap to the wrong conclusion, but this fact was solid.
+
+She picked up her phone, "Get someone from Human Resources in here, now."
+
+She glared at the last line again.
+
+Susan Drakes had retired.
+
+---
+
+Isaac Jacques stood up slowly from the end of the table, and begun to circle the room. As he passed by each member of the investigative group, he could see them shiver out of the corner of his eye.
+
+He smiled.
+
+"Gentleman, we have suffered greatly. Not only did we watch in horror as our nation was attacked, by a trained member of an allied nation, no less! Not only that, we were forced to pour over the facts. We have seen atrocities, spoke with so many friends who lost their own. We have been forced to witness the very worst of mankind. And now, we lie at a time when a decision must be made, or we may as well set ourselves adrift." 
+
+He paused, letting it sink in, letting the fresh memories of horror rise to the surface again. "ASIO fudged it. They had a man, a good man, and turned him into a weapon against us. For no reason, no good reason, they failed to keep their own under wraps. Instead, we have another ASIO agent, with a history of violence, and a weakness to her age, sent here to repair the damage. She stops the man, but in the process we have lost the best of our own agency."
+
+He came back to his seat, and leaned on the head, "Friends, now is the time for justice. ASIO must be punished for their inequities, and Drakes must be extradited for her failure to control the situation. We have no alternative."
+
+---
+
+The newsreader smiled warmly at the camera, "And now we're going live to Canada, where a spokesman for the Canadian Security Intelligence Service says that they have finished their investigation into the terrorist attacks that killed and maimed so many."
+
+The camera cuts quickly, to a smiling man in a suit who speaks just a second too slowly, telling of the time difference. "Yes, thankyou, Kat. We have finished our investigation, and the results are pretty much what you can expect. We have maintained throughout the investigation our certainty that Australia failed to act in the right manner, and we believe that is the case." He continues on ignoring the reporter attempting to ask a question, "The Australian agent who ended the terrorist's life acted in a way that put the public in danger, and the terrorist himself used to be a member of ASIO. If you can't trust your own friends, who can you trust?"
+
+The reporter looked a bit more concerned than she should have, "What action is the Canadian government actually undertaking?"
+
+"We've already established new procedures and protocols to protect our nation, but we really don't think this will be over until we have interrogated the agent we blame for so much loss."
+
+The reporter was stunned, "Does Canada intend to request Australia to hand over the agent who saved so many lives?"
+
+The man sighed heavily, anger appearing on his face, "She didn't. Even if we hadn't responded to the crisis in twice the time it took us, if she hadn't been involved, nearly seventy percent of those involved would not have died. She intervened in a sovereign nation, and nearly killed us all. She needs to pay for her crimes." He sighed heavily, whistling in the microphone, "We believe the Australian government will agree with us."
